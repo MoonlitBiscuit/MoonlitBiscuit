@@ -1,6 +1,6 @@
 ## HI i know how to code i might pretty this one day idk i may be lazy
 
-Theres already info on my patreon since i did that a while ago , but ill still add some here . . i suck really bad at doing these sigh
+**READ MY PATREON** It has more info + goes more in depth
 
 
 ### Names are Salem / Mika but you can also call me Moonlit !! 
