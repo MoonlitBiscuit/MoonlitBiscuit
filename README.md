@@ -16,6 +16,6 @@
 - normal things .. astronomy , lietrally just sceince . foxes / big cats , cooking
 
 ### Dni glare
-- proshitters , font users , tq users , weird ass people . basic dni stuff 
+- proshitters , font users , tq users , people -14 , weird ass people . basic dni stuff 
 ---
 this isnt a dni just dont use tone tags on me thank yeww
