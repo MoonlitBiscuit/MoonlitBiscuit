@@ -12,8 +12,8 @@
 - I DONT INT WITH FANDOMS OFTEN people freak me out ill probably hide sigh
 
 ### Shit im into umm
-- 800 billion animes .. **Naruto** , **DrStone** , **FMA(B)** , **Seraph** , **PKMN** , HxH , YOtD , Magi , **AOT** , **Elusive Samurai** . I LIRTLLY CANNOT REMEBR BUT I HAVE TO LIST THEM ALL .
-- normal things .. astronomy , lietrally just sceince . foxes / big cats , cooking
+- 800 billion animes .. **Naruto** , **DrStone** , **FMA(B)** , **Seraph** , **PKMN** , HxH , YOtD , Magi , **AOT** . I LIRTLLY CANNOT REMEBR BUT I HAVE TO LIST THEM ALL .
+- normal things .. astronomy , lietrally just sceince . foxes / big cats , cooking , art / drawing
 
 ### Dni glare
 - proshitters , font users , tq users , people -14 , weird ass people . basic dni stuff 
