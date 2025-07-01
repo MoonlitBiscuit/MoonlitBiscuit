@@ -5,7 +5,7 @@
 
 ### Names are Salem / Mika but you can also call me Moonlit !! 
 - AuADHD System please be chill .
-- I usually sit by myself or with my wife , ur welcome to whisper me !
+- I usually sit with friends or with my wife , ur welcome to whisper me !
 - im realy stupid and socialy anxious and stupid
 ---
 - I have a lot of interests that i sometimes gatekeep really bad ,, i dont hate you trust but also i will not talk to you
