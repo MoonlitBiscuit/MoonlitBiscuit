@@ -9,7 +9,7 @@
 - im realy stupid and socialy anxious and stupid
 ---
 - I have a lot of interests that i try to be normal about , i can get pretty gatekeepy but i keep it to mysefl trust
-- I DONT INT WITH FANDOMS OFTEN people freak me out ill probably hide sigh
+- I DONT INT WITH FANDOMS OFTEN people freak me out why are you all ILL .
 
 ### Shit im into umm
 - 800 billion animes .. **Naruto** , **DrStone** , **FMA(B)** , **Seraph** , **PKMN** , HxH , YOtD , Magi , **AOT** . I LIRTLLY CANNOT REMEBR BUT I HAVE TO LIST THEM ALL .
