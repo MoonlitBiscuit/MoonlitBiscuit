@@ -8,7 +8,7 @@
 - I usually sit with friends or with my wife , ur welcome to whisper me !
 - im realy stupid and socialy anxious and stupid
 ---
-- I have a lot of interests that i sometimes gatekeep really bad ,, i dont hate you trust but also i will not talk to you
+- I have a lot of interests that i try to be normal about , i can get pretty gatekeepy but i keep it to mysefl trust
 - I DONT INT WITH FANDOMS OFTEN people freak me out ill probably hide sigh
 
 ### Shit im into umm
