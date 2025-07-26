@@ -7,6 +7,7 @@
 - AuADHD System please be chill .
 - I usually sit with friends or with my wife , ur welcome to whisper me !
 - im realy stupid and socialy anxious and stupid
+- If I friend you I intend to chat with you often and sit together , not just to have the green name . Please keep that in mind
 ---
 - I have a lot of interests that i try to be normal about , i can get pretty gatekeepy but i keep it to mysefl trust
 - I DONT INT WITH FANDOMS OFTEN people freak me out why are you all ILL .
@@ -16,6 +17,6 @@
 - normal things .. astronomy , lietrally just sceince . foxes / big cats , cooking , art / drawing
 
 ### Dni glare
-- proshitters , font users , tq users , people -14 , weird ass people . basic dni stuff 
+- proshitters , font users , tq users , people under 15 , weird ass people . basic dni stuff ...... tobirama fans . ^_^
 ---
 this isnt a dni just dont use tone tags on me thank yeww
