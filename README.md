@@ -17,6 +17,6 @@
 - normal things .. astronomy , lietrally just sceince . foxes / big cats , cooking , art / drawing
 
 ### Dni glare
-- proshitters , font users , tq users , people under 15 , weird ass people . basic dni stuff ...... tobirama fans . ^_^
+- proshitters , font users , tq users , people under 15 , weird ass people . basic dni stuff ...... tobirama likers . ^_^
 ---
 this isnt a dni just dont use tone tags on me thank yeww
